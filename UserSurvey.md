@@ -2,7 +2,7 @@
 
 My favourite ice cream flavour is
 
-JD - Mint
+JD - Chocolate chip and Mint
 
 LC - 
 
